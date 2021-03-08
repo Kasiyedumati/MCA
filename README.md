@@ -2,9 +2,9 @@ chinna kasaiah yedumati
 =======================
 
 -------------------     ---------------------------- 
-Email                           kasiyedumati25@gmail.com
-phone                           955321****
-MyCountry                       India
+-Email                           kasiyedumati25@gmail.com
+-phone                           955321****
+-MyCountry                       India
 -------------------     ----------------------------
 
 Education
